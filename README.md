@@ -1,0 +1,1 @@
+# Alt-n-bilgi-i-lem-makinesine
